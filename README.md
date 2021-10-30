@@ -51,3 +51,15 @@ Recommendations
 high limit on atm transactions for cashing a check or withdrawal, enabling wire transfers for larger amounts , increasing zelle limits , lower monthly fees on accounts 
 * Why do you think that offering this product or service would benefit the company?
 would be less staff in branches ( cost cutting result in more revenue ) also more customer would bank or keep relationship . 
+
+
+used resources 
+
+https://www.mybanktracker.com/checking/reviews/bank-of-america-core-checking-review-272058
+
+https://www.investopedia.com/how-bank-of-america-makes-money-4798042
+
+https://www.referenceforbusiness.com/history2/18/Bank-of-America-Corporation.html
+
+https://www.fool.com/investing/2017/04/26/10-things-you-didnt-know-about-bank-of-america.aspx
+
